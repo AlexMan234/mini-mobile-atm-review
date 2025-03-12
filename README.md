@@ -5,7 +5,6 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
     <meta name="description" content="An honest and in-depth review of Mini Mobile ATM. Is it a scam or a legitimate way to make money online? Find out here.">
     <title>Mini Mobile ATM Review - Is It Legit or a Scam?</title>
-</head>
 <body>
     <h1>Mini Mobile ATM Review: Is This “2-Minute Phone Trick” a Scam?</h1>
     <p>If you’ve come across <strong>Mini Mobile ATM</strong>, you’ve probably seen the bold claim that you can turn your phone into a personal ATM and make hundreds of dollars daily with just a <strong>2-minute trick</strong>. Sounds too good to be true, right?</p>
